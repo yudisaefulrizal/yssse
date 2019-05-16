@@ -1,0 +1,2 @@
+# yssse
+belajar aja
